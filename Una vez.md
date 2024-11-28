@@ -1,7 +1,7 @@
 
 ## Una Vez 
 
-**Una vez** <sup>lo irrepetibe</sup>  
+**Una vez** <sup>lo irrepetible</sup>  
 _Singularidad_,  
 **_Retorno y soledad._**
 
